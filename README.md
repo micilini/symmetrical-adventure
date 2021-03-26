@@ -1,2 +1,0 @@
-# symmetrical-adventure
-ola mmm
